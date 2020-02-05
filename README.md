@@ -1,1 +1,0 @@
-# noahkryz.github.io
